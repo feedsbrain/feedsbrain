@@ -2,7 +2,7 @@
 
 🇮🇩 Indonesian who lives in 🇲🇾 [Kuala Lumpur](https://www.dbkl.gov.my), [Malaysia](https://www.malaysia.gov.my) ([UTC+8](https://www.timeanddate.com/worldclock/malaysia/kuala-lumpur)).
 
-I'm currently working full-time as Staff Software Development Engineer @ [Setel](http://setel.com/). In my spare time, I do freelance consulting job and helps small startups filling the role to guide them on the journey of executing their ideas into a high quality product.
+I'm currently working full-time as Staff Software Development Engineer / Engineering Lead @ [Setel](http://setel.com/). In my spare time, I do freelance consulting job and helps small startups filling the role to guide them on the journey of executing their ideas into a high quality product.
 
 Althought it's difficult for me to find a time to write these days, feel free to visit my blog at [blog](https://blog.indragunawan.com). If you want to know more about my current and past experience, and all the stuff that I do in my previous job, my portfolio is availabe to view and download [here](https://cv.indragunawan.com).
 
