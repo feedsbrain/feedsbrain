@@ -13,6 +13,5 @@ Check out things that I do beside my day-to-day job here:
 - 🥋 Learn with me: [@dojongulik](https://github.com/dojongulik)
 - 💬 Hangout with me @ [Discord](https://discord.gg/qt4Y2dhDfe)
 - 📫 Reach me on [LinkedIn](https://www.linkedin.com/in/feedsbrain/) or [Instagram](https://instagram.com/indragunawandotcom)
-- 📅 Book 1-1 meeting with me with [Calendly](https://calendly.com/indragunawan)
 
 I am totally a different person in every social media platform because people are usually using a different psychological profile in a different environment. So if you want to know more about me, please visit all of them. Cheers! 😃
