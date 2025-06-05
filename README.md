@@ -8,11 +8,11 @@ Although it's difficult for me to find time to write these days, feel free to vi
 
 Check out things that I do besides my day-to-day job here:
 
-- 🐦 Follow me on [Twitter](https://twitter.com/igunawandotcom)
+- 🐦 Follow me on [X](https://X.com/igunawandotcom)
 - ⚙️ Research center: [@garasingulik](https://github.com/garasingulik)
 - 🥋 Learn with me: [@dojongulik](https://github.com/dojongulik)
 - 💬 Hangout with me @ [Discord](https://discord.gg/qt4Y2dhDfe)
 - 📫 Reach me on [LinkedIn](https://www.linkedin.com/in/feedsbrain/) or [Instagram](https://instagram.com/indragunawandotcom)
-- 📅 Book 1-1 meeting with me with [Google](https://calendar.app.google/Bu52FUpxipPkVJP1A)
+- 📅 Book 1-1 meeting with me with [Google](https://igdc.site/s/meeting)
 
 I have multiple personalities on different social media platforms so if you want to know more about me, please visit all of them. Cheers! 😃
