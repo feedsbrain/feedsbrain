@@ -13,6 +13,6 @@ Check out things that I do besides my day-to-day job here:
 - 🥋 Learn with me: [@dojongulik](https://github.com/dojongulik)
 - 💬 Hangout with me @ [Discord](https://discord.gg/qt4Y2dhDfe)
 - 📫 Reach me on [LinkedIn](https://www.linkedin.com/in/feedsbrain/) or [Instagram](https://instagram.com/indragunawandotcom)
-- 📅 Book 1-1 meeting with me with [Google](https://igdc.site/s/meeting)
+- 📅 Book 1-1 meeting with me with [Google](https://igdc.site/s/calendar)
 
 I have multiple personalities on different social media platforms so if you want to know more about me, please visit all of them. Cheers! 😃
